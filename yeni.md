@@ -1,2 +1,0 @@
-# mustafa
-## cetin
